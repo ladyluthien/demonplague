@@ -1,0 +1,3 @@
+For this campaign, you can pick any destiny except Excellence, because it's busted beyond belief. Dominion does not grant an alignment.
+
+When you pick your Destiny, also come up with a handful (3-4) knives, or things that could hurt your character in plot-motivating ways, and send them to me privately. These can relate to your destiny (or not, but it's cooler if they do). I reserve the right to tweak them, but I'll ask you about any major changes first. Please also send me anything you *don't* want, e.g. "my character would drop everything if their ex-lover was in danger, but I don't want to actually reconcile with them". 

@@ -1,0 +1,33 @@
+Appropriate cultures for this setting include:
+- Blood pack
+- Caravanner
+- Collegiate
+- Circusfolk
+- Deep Dwarf
+- Deep Gnome
+- Faceless (doppelganger or garoul only unless you have a *really* good case)
+- Forest Gnome
+- Forgotten Folx
+- Forsaken
+- Godbound
+- High Elf
+- Hill Dwarf
+- Itinerant
+- Lone Wanderer
+- Mariner
+- Mountain Dwarf
+- Mustbairn Halfling
+- Nomad
+- Rover
+- Settler
+- Stoic Orc
+- Stoneworthy
+- Villager
+- Warhordling
+- Wildling
+- Wood Elf
+
+In addition, if you are originally from the ruined city of Safeharbor or elsewhere in the world, you may have the following:
+- Collegiate
+- Cosmopolitan
+- Imperial (elsewhere in the world only)
